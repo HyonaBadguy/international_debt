@@ -1,4 +1,4 @@
-![](images/billetes.jpeg)
+![Ajolote money](images/billete.jpeg)
 
 
 Los seres humanos no solo adquieren deudas para cubrir necesidades básicas. Los países también pueden endeudarse como una forma de gestionar su economía. Por ejemplo, invertir en infraestructura representa un gasto elevado, pero es fundamental para garantizar una buena calidad de vida a los ciudadanos. El Banco Mundial es una de las instituciones que otorgan préstamos a los países.
